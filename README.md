@@ -1,1 +1,0 @@
-# OpenSource-The-Foundation-Stone
